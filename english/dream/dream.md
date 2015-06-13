@@ -1,3 +1,5 @@
+Dream is a combination of fantasy & reality
+
 You understand that it's difficult to wake up from a dream if you think this is all really happening to you.
 You attempt to point out things that are around you that cannot possibly occur in real life
 such the marshmallow walls and hand.
